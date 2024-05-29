@@ -1,2 +1,3 @@
 my specialty is...
 특기!
+잠자기..
